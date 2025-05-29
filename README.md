@@ -1,1 +1,1 @@
-# Blue-Lock-Rivals-axd
+https://lolz.live/support-tickets/124154/view
